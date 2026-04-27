@@ -6,3 +6,4 @@
 ![슬라이드6](https://github.com/user-attachments/assets/c61e8cae-51d6-4eca-ab9b-a71c22efd0a1)
 ![슬라이드7](https://github.com/user-attachments/assets/43abad3f-dd12-47a5-b2aa-3dad120ce810)
 ![슬라이드8](https://github.com/user-attachments/assets/764c5ed8-4d69-496a-a9f7-97b0efdb8884)
+<img width="1920" height="1080" alt="슬라이드10" src="https://github.com/user-attachments/assets/8918741b-56b1-4757-b06b-ce72de266cc6" />
